@@ -163,6 +163,6 @@ will be announced in the app before they take effect.
 
 Questions about this policy, or a request to delete your account:
 
-**<CONTACT_EMAIL>**
+**deepakss6464@gmail.com**
 
 We aim to reply within seven days.
